@@ -1,6 +1,6 @@
-I'm a cute and fluffy little fox :3
+cold fur, ears and a fluffy tail
 -
-я милый и пушистый лисёнок :3
+холодный мех, ушки и пушистый хвостик
 <!---
 ◊ XaKristl | Лисёнок
 --->
